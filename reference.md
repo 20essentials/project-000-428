@@ -1,0 +1,2 @@
+- **Reference ⬇️**
+  - [Noise Effect](https://www.freepik.com/premium-vector/grain-circle-gradient-stippled-round-shape-radial-stochastic-dotwork-texture-random-grunge-noise_32793361.htm#fromView=keyword&page=1&position=16&uuid=3ba9e84f-9a6b-481f-9676-e3e378ff8f1d)
